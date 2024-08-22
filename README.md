@@ -5,7 +5,7 @@
 - 📫 Como entrar em contato comigo: pelo instragam: @limara.0605 💋
 - 😄 Meus pronomes: Ela/Dela
 - ⚡ Curiosidades: Sou muito legal, mesmo que não pareça 😆
-
-<!---
+  
 IngredFal/IngredFal é um repositirio ✨especial✨ porque é pra mim ganhar nota 😘💋😜😜😎😆😆😘😘😍😍🤣🤣😊😊🤦‍♀️🙌👍
---->
+
+  ![](https://media1.tenor.com/m/JsZfF6mK3V0AAAAC/toma.gif)
